@@ -1,4 +1,4 @@
-# Hi there, I'm [Anthony Antwi-Adjei]! 👋
+# Hi there, I'm Anthony Antwi-Adjei! 👋
 
 
 ## About Me 🚀
